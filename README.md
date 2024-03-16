@@ -1,4 +1,4 @@
-PromoCodeShop
+BlessingQuotes.org
 =============
-
-http://promocodeshop.com/ Savings does matter, PROMOCODESHOP.COM brings you free online coupons, promo code, coupon code, and promotion code. So that you can save each time you buy online through us.
+https://blessingquotes.org/
+Kickstart your day with a dose of positivity. Discover a curated collection of daily Inspirational Quotes, Wishes, Affirmations and Stories at BlessingQuotes.org. Find the perfect message to motivate yourself, uplift others, and conquer your goals. Be inspired & spread the Sunday cheer.
